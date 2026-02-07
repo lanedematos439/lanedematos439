@@ -5,7 +5,7 @@
 
 ###
 
-<img align="right" height="157" src="[https://www.icegif.com/wp-content/uploads/2023/04/icegif-774.gif]"  />
+<img align="right" height="157" src="https://www.icegif.com/wp-content/uploads/2023/04/icegif-774.gif"/>
 
 ###
 
