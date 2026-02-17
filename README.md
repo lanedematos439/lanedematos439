@@ -5,7 +5,7 @@
 
 ###
 
-<img align="right" height="157" src="https://www.gif-vif.com/trending/cute-jumping-snoopy-happy-dance-c1ye99b6k03cw6um"/>
+<img align="right" height="157" src="https://www.gif-vif.com/trending/cute-jumping-snoopy-happy-dance-c1ye99b6k03cw6um">
 
 
 ###
