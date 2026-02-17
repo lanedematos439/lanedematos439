@@ -5,8 +5,7 @@
 
 ###
 
-
-<iframe src="https://www.gif-vif.com/trending/cute-jumping-snoopy-happy-dance-c1ye99b6k03cw6um" frameborder="0" allowfullscreen></iframe>
+<img align="right" height="157" src="https://www.gif-vif.com/trending/cute-jumping-snoopy-happy-dance-c1ye99b6k03cw6um.gif"/>
 
 
 ###
